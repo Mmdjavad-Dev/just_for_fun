@@ -1,2 +1,2 @@
 # just_for_fun
-no description 
+This is the first thing I upload on my GitHub khkhkhkhkh ((:
